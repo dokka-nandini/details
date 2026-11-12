@@ -1,1 +1,1 @@
-hello gm thinnava tc 87 eu ec net on lo pettuko ok na 
+ok i am reading tc 7888
