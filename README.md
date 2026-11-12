@@ -34,4 +34,4 @@ sir send me link to apply i apply
 
 react native means app
 
-hlo ok na 
+hlo ok na 77 all there that why thinnava ok na tc 87 Vastha 14 ok na interview undi i think any mail come tell me in GitHub ok na Inkem chala chala cheythunavu chudu 3 thought kuda vadu ok na na 7 kavala 3 kavala 3 thought kuda vadu nanna na bagaram kada manam holy ga undali Jesus ki prayer cheyali appudu Jesus mana prayer vitadu bye gn tc 8 na bagaram na buji kada paduko aaa 
