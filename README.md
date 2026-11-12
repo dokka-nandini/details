@@ -32,3 +32,4 @@ As we have informed you, we will not be shortlisting the resumes if the students
 
 sir send me link to apply i apply 
 
+react native means app
