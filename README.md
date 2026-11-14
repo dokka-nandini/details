@@ -28,7 +28,11 @@ Process will be halted by today 1:30 PM .So share the resumes before 1:30  PM
 
 As we have informed you, we will not be shortlisting the resumes if the students didn't mention the training and Institute details in their resume
 
-
+health  ok na 7 tc 
+i always there for you 
+any problem any thing I am there 
+any situation 7
+birthday kuda Jagrattaga undu
 
 sir send me link to apply i apply 
 
